@@ -1,0 +1,3 @@
+## Bismarck
+
+Bismarck (tyska: [ˈbɪsmaʁk]), sjösatt 14 februari 1939, var det första av de två slagskeppen av Bismarck-klass som byggdes för Nazitysklands Kriegsmarine. Det hade ett deplacement på 43 978 ton (fullt utrustad låg skeppet på 51 760 ton), huvudbestyckningen utgjordes av åtta stycken 38 cm kanoner och besättningen bestod av 2 065 man, men utökades till över 2 200. Den 24 augusti 1940 var Bismarck färdig att sättas i drift. Då det gick till sjöss i maj 1941 var det ett dödligt hot mot den atlantiska konvojtrafiken. Det sänktes i strid med den brittiska flottan 27 maj 1941. Fartygets namn är en hyllning till Otto von Bismarck.
